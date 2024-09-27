@@ -15,7 +15,7 @@ Unsubscribe Link Resources:
 * [Jon Sayer](https://www.linkedin.com/in/jonsayer/)
 * Scott Jacobson
 * Eileen K
-* Dirk Keaton
+* [Dirk Keaton](www.linkedin.com/in/dirk-keaton-785a1531)
 * Aïcha Medjahed
 * [Hua Ping Tan](https://www.linkedin.com/in/huapingtan/)
 * [Igor Androsov](https://www.linkedin.com/in/iandrosov/)
